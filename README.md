@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SophyMoon. I will graduate from Baylor in May 2024 with a degree in Graphic Design.
+- 👀 I’m interested in graphic and product design, as well as UX/UI design. I am hoping to get a job in any of these things.
+- 🌱 I’m currently learning UX design through Google.
+- 📫 You can reach me at sophydailytexas@gmail.com.
